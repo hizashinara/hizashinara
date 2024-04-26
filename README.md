@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @hizashinara
+- 👀 I’m interested in maths, physics, self-developement
+- 🌱 I’m currently learning c++ 
+- 🎓 I'm student of Biomedical Engineering
+- 📫 Reach me: ig @natalia_kukuczka || nataliakukuczka101@gmail.com
+- ⚡ Fun fact: Mówię gwarą (I speak the Silesian dialect)
